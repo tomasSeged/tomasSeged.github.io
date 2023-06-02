@@ -1,1 +1,1 @@
-# tomasSeged.github.io
+#Tomas Seged
