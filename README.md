@@ -1,3 +1,3 @@
 # Tomas Seged
 
-## COMING SOON - Under Construction
+> COMING SOON - Under Construction
